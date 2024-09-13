@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @NthabeniRonewa
+- 👀 I’m interested  in team work, I am ready to learn more to gain experience. 
+- 🌱 I’m currently studying computer science .
+- 💞️ I’m looking to collaborate on  creating web applications,Andriod applications .
+- You can reach me on WhatsApp 0606376916
+- Languages Java, JavaScript, HTML, CSS,SQL , PL SQL
